@@ -1,0 +1,2 @@
+# Energy-is-the-other-form-of-matter.-High-compression-pressure-is-one-of-the-ways-to-convert-matter
+It is well known that matter occupies space, while energy does not. We also know that matter can be converted into energy. But what happens if a piece of matter is compressed beyond the minimum volume it can occupy? It is logical to propose that under extreme compression, matter may be forced to convert into energy as a way to release the pressure
